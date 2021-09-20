@@ -18,3 +18,4 @@ Modo de Preparo
 2. Em outra panela coloque o óleo, o extrato o sal, e o alho, deixe reduzir e apurar.
 3. Escorra o macarrão e frite no molho mexendo bem.
 
+- Cuidado com o tempo 
